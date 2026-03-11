@@ -17,7 +17,7 @@ New day, same grind.
 New week, more grind.
 
 10 MAR
-New week, more grind.
+New day, more grind.
 
 11 MAR
 New day, more grind.
