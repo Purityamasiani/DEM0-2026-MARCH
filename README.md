@@ -37,3 +37,5 @@ New week, new day ssame grind.
 18 MAR
 New day, lunched my new machine(M4).
 Im backkkk.
+
+19 MAR
